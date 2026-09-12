@@ -1,16 +1,16 @@
-## Hi there 👋
+## Wsp guys <img width="25" height="25" alt="image" src="https://github.com/user-attachments/assets/fc9dfc80-3612-4d1c-a497-772591ccfb09" />
 
-<!--
-**Keanutech/Keanutech** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+I'm Keanu a student from germany.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+i like building cool things that come to my head.  
+
+
+tbh i'm probably better at running then at building but yea 😭.
+
+
+oh and i love my garmin ⌚
+
+
+If you want to contact me. dm me on linkedin 
