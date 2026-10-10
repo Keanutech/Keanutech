@@ -10,7 +10,5 @@ i like building cool things that come to my head.
 tbh i'm probably better at running then at building but yea 😭.
 
 
-oh and i love my garmin ⌚
-
 
 If you want to contact me. dm me on linkedin 
